@@ -72,7 +72,7 @@ If you’re ready to take your business to new digital heights, Moiraa is here t
 
 Don’t wait any longer. Reach out to Moiraa to elevate your digital presence today.
 
-[Website(https://www.moiraa.com/)] | [Email(mailto:moiraatech@gmail.com)] | [Phone: +91 9063285177]
+[Website](https://www.moiraa.com/) | [Email](mailto:moiraatech@gmail.com) | [Phone: +91 9063285177]
 
 As a leading **web designing company in Hyderabad**, Moiraa is committed to delivering top-notch web design services that help you stand out and succeed in the digital world.
 
